@@ -1,6 +1,4 @@
-Instala la nueva versión del WhatsApp
-
-Install the new WhatsApp version
+Olá bem-vindo ao Imune LuanmodzR v10  Obrigado por apoiar nosso Imune se inscrevar pra obter mais atualizações do mod.❤️🚀
 
 <!---
 SkilkryMods/SkilkryMods is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
